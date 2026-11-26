@@ -1,0 +1,1 @@
+# Meu-asssistente-de-planejamento-de-IA
